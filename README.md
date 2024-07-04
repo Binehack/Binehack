@@ -2,7 +2,8 @@
 - 👀 I’m interested in ... cyber security, hacking, coding,
 - 🌱 I’m currently learning ... how to operate linux
 - 💞️ I’m looking to collaborate on ... anything for knowledge
-- 📫 How to reach me ...
+- 📫 How to reach me ... teddy.bone19@gmail.
+- pcom
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
